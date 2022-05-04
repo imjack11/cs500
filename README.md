@@ -2,4 +2,4 @@
 
 My first repository on GitHub
 
-i like 🍕za: ☕:, and 🛌
+i like 🍕za: ☕:, and 🛌.
